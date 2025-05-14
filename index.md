@@ -3,8 +3,20 @@ layout: default
 title: Home
 ---
 
-# Welcome to My Blog
+# Blog Site
 
-{% for post in site.posts %}
+<!-- {% for post in site.posts %}
 - [{{ post.title }}]({{ post.url }}) ({{ post.date | date: "%b %-d, %Y" }})
-{% endfor %}
+{% endfor %} -->
+
+## This is a subheading
+
+### And a sub-subheading
+
+This is some text and stuff.
+
+More text.
+
+## Different heading
+
+The end.
