@@ -1,5 +1,5 @@
 title: My Jekyll Blog
 description: A simple blog powered by Jekyll and GitHub Pages
 baseurl: ""
-url: "https://<your-github-username>.github.io"
+url: "https://doopie-art.github.io"
 theme: minima
