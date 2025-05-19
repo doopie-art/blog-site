@@ -49,9 +49,6 @@ We chose a long weekend and committed. No diapers (except at night). Just:
 
 We avoided pull-ups during the day—they’re too similar to diapers.
 
-** ADVERT HERE **
-{% include adsense.html %}
-
 ## 4. Make It Fun, Not Stressful
 
 I kept the mood light. We read potty books like *“Potty” by Leslie Patricelli* and sang silly potty songs. If he sat on the potty (even without results), he got a high-five or a sticker.
@@ -77,9 +74,6 @@ Tips:
 * Pee before sleep
 * Use a waterproof mattress cover
 
-** ADVERT HERE **
-{% include adsense.html %}
-
 ## 7. What Didn’t Work (And Why That’s Okay)
 
 * **Reward overload**: Candy every time = unsustainable. We weaned off quickly.
@@ -99,9 +93,6 @@ These felt more sustainable and reinforced internal motivation.
 ## 9. Regression is Normal
 
 We had setbacks—when he was sick, or distracted by life changes (like starting preschool). When it happened, we stayed calm and just reinforced the basics. Regression isn’t failure, it’s part of the process.
-
-** ADVERT HERE **
-{% include adsense.html %}
 
 ## 10. Final Thoughts
 
