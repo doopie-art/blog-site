@@ -27,7 +27,7 @@ Then came the potty. [A simple £8.50 model from Ikea](https://www.ikea.com/gb/e
 
 We cleared our calendars, stayed home, and gave our full attention to this new adventure. With his little sister needing care too, both of us were on board full-time.
 
-We introduced “big boy pants”, fun, colourful ones with his favourite characters. The excitement on his face when he put them on? Priceless. To support the transition, we read *My Potty Book: A Potty Book for Little Boys*, which told the story of Jack, a little boy learning to use the potty. Jack became our training sidekick. Every time our son sat on the potty, we’d echo Jack’s story: “Pants down, sit down, put your botty on the potty!”
+We introduced “big boy pants”, fun, colourful ones with his favourite characters. The excitement on his face when he put them on? Priceless. To support the transition, we read [*My Potty Book: A Potty Book for Little Boys*](https://www.youtube.com/watch?v=kBQZbsJL_P4), which told the story of Jack, a little boy learning to use the potty. Jack became our training sidekick. Every time our son sat on the potty, we’d echo Jack’s story: “Pants down, sit down, put your botty on the potty!”
 
 ## The Reward System: Stickers, Smarties & Celebrations
 
@@ -47,17 +47,17 @@ Day one was rough, 20 accidents. Day two, fewer than six. By day three, we were 
 
 These little hacks made a huge difference:
 
-- **Potty location matters**: We placed it in the downstairs bathroom, a tiled area near his play space for quick, easy access.
+- **Potty location**: We placed it in the downstairs bathroom, a tiled area near his play space for quick, easy access.
 - **Always-open door**: No fumbling with handles during a potty emergency.
 - **Sticker chart & prize box nearby**: Easy access helped link rewards with action.
-- **Prep your activity list**: Long days at home with toddlers can drag. We had crafts, baking ingredients, and new games on standby.
+- **Prep your activity list**: Long days at home with toddlers can drag. We had crafts, baking ingredients, and new games on standby and a quick reference list on the wall to give us ideas!
 - **Loose-fitting pants**: Easier up-and-down for potty breaks.
-- **A lot of pants**: We bought 20–25 pairs and kept them by the potty. Trust us, you’ll go through them.
+- **A lot of pants**: We bought 20–25 pairs and kept them by the potty, and we needed them!
 
 
 ## One Thing We Regret…
 
-Not thinking of **flushable wet wipes**. They’re a game-changer for poo clean-ups and way easier than toilet paper. Just make sure they’re truly flushable!
+Not thinking of **flushable wet wipes**. They would've been so helpful for poo clean-ups and way easier than toilet paper. Just make sure they’re truly flushable! Our wipes weren't and it was a hassle to dispose of them seperately to the potty contents.
 
 ## Final Thoughts
 
