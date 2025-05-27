@@ -11,7 +11,9 @@ If you’ve ever looked at that tiny potty in the corner of your bathroom and wo
 
 Here’s what worked for us, the real, honest, sticker-covered story.
 
----
+## A Note on Readiness
+
+Our son wasn’t exactly ahead of the curve developmentally. He crawled at 13 months, walked at 18, and still had limited speech when we started potty training at 2 years and 9 months. If your child is similar, don’t be discouraged. Potty training is possible, even when you think the odds aren’t in your favour.
 
 ## Step One: Conditioning (a.k.a. Normalising the Potty)
 
@@ -19,15 +21,11 @@ Long before any “training” began, we started by simply normalising the bathr
 
 Then came the potty. A simple £8.50 model from Ikea with a removable insert, practical and easy to clean. We gave it a name, “the potty,” and introduced it as part of daily life. He wasn’t expected to *use* it yet, just sit on it like a little chair. Over time, he started mimicking us, sitting on it fully clothed and saying “pee.” It was a win, the first step toward building familiarity and comfort.
 
----
-
 ## Step Two: The Three-Day Potty Boot Camp
 
 We cleared our calendars, stayed home, and gave our full attention to this new adventure. With his little sister needing care too, both of us were on board full-time.
 
 We introduced “big boy pants”, fun, colourful ones with his favourite characters. The excitement on his face when he put them on? Priceless. To support the transition, we read *My Potty Book: A Potty Book for Little Boys*, which told the story of Jack, a little boy learning to use the potty. Jack became our training sidekick. Every time our son sat on the potty, we’d echo Jack’s story: “Pants down, sit down, put your botty on the potty!”
-
----
 
 ## The Reward System: Stickers, Smarties & Celebrations
 
@@ -35,19 +33,13 @@ Rewards were a big part of our strategy, not bribes, but joyful celebrations. We
 
 To up the excitement, we had a “prize box” with bigger rewards like small toys and treats. Every five stickers meant a trip to the box. His first poo? That definitely earned a prize. Over time, we noticed he stopped asking for rewards, the hugs, cheers, and high-fives became enough.
 
----
-
 ## Watching for the (Not-So-Subtle) Cues
 
 We tried the usual “Tell me if you need to go potty” line, didn’t work. He never once told us voluntarily. Instead, we learned to watch for physical cues: fidgeting, shifting weight, stiffening legs, even hitting his tummy or groin. Recognising these signs helped us anticipate his needs rather than waiting for a verbal cue that might never come.
 
----
-
-## Accidents Happen, And That’s Okay
+## Accidents Happen, And That’s OK!
 
 Day one was rough, 20 accidents. Day two, fewer than six. By day three, we were down to one or two. Accidents were expected, and we never punished or scolded him. Potty training, like learning to walk or ride a bike, takes practice. Mistakes were met with gentle reminders and encouragement, and maybe a sticker when he tried again.
-
----
 
 ## Our Favourite Tricks (That Made Life So Much Easier)
 
@@ -60,22 +52,11 @@ These little hacks made a huge difference:
 - **Loose-fitting pants**: Easier up-and-down for potty breaks.
 - **A lot of pants**: We bought 20–25 pairs and kept them by the potty. Trust us, you’ll go through them.
 
----
 
 ## One Thing We Regret…
 
 Not thinking of **flushable wet wipes**. They’re a game-changer for poo clean-ups and way easier than toilet paper. Just make sure they’re truly flushable!
 
----
-
-## A Note on Readiness
-
-Our son wasn’t exactly ahead of the curve developmentally. He crawled at 13 months, walked at 18, and still had limited speech when we started potty training at 2 years and 9 months. If your child is similar, don’t be discouraged. Potty training is possible, even when you think the odds aren’t in your favour.
-
----
-
 ## Final Thoughts
 
 Potty training is different for every child, and what worked for us might not work for you. But if you’re about to start your own potty journey, I hope our story helps. With a bit of prep, a lot of praise, and maybe a few Smarties, your little one can do it too.
-
-You’ve got this, mama.
