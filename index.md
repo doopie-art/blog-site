@@ -5,6 +5,8 @@ date: 2025-05-14
 description: "A personal, parent-tested guide to potty training boys with practical tips, tools, and tactics that actually worked for me."
 ---
 
+*A 5 minute read...*
+
 # How We Potty Trained Our Son in Just 3 Days (Yes, Really!)
 
 If you’ve ever looked at that tiny potty in the corner of your bathroom and wondered how on earth your toddler is going to use it, you’re not alone. Potty training can feel daunting, messy, and honestly, a bit mysterious. I’m here to share how we managed to potty train our son in just three days. It wasn’t magic, but it did take preparation, patience, and a few Smarties.
@@ -19,7 +21,7 @@ Our son wasn’t exactly ahead of the curve developmentally. He crawled at 13 mo
 
 Long before any “training” began, we started by simply normalising the bathroom. Our son watched us use the toilet (yep, privacy went out the window), we named what we were doing, “pee pee” and “poo poo”, and involved him in the whole process: flushing, waving goodbye to the toilet contents, even putting the seat down.
 
-Then came the potty. A simple £8.50 model from Ikea with a removable insert, practical and easy to clean. We gave it a name, “the potty,” and introduced it as part of daily life. He wasn’t expected to *use* it yet, just sit on it like a little chair. Over time, he started mimicking us, sitting on it fully clothed and saying “pee.” It was a win, the first step toward building familiarity and comfort.
+Then came the potty. [A simple £8.50 model from Ikea](https://www.ikea.com/gb/en/p/lockig-childrens-potty-white-green-60193128/) with a removable insert, practical and easy to clean. We gave it a name, “the potty,” and introduced it as part of daily life. He wasn’t expected to *use* it yet, just sit on it like a little chair. Over time, he started mimicking us, sitting on it fully clothed and saying “pee.” It was a win, the first step toward building familiarity and comfort.
 
 ## Step Two: The Three-Day Potty Boot Camp
 
