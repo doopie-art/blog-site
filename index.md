@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "How We Potty Trained Our Son in Just 3 Days (Yes, Really!)"
+title: "Title index"
 date: 2025-05-14
 description: "A personal, parent-tested guide to potty training boys with practical tips, tools, and tactics that actually worked for me."
 ---
